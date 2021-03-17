@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @sunfroots, I'm the creative brand by Emily Laven
+- 👋 Hi, I’m @sunfroots, the creative brand by Emily Laven
 - 👀 I’m interested in saving the world
 - 🌱 I’m currently learning Dutch, since I moved to Flanders in 2020
 - 💞️ I’m looking to collaborate on Sun Warriors
